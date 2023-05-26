@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 📫 You can reach me -> alperensenyigit.as@gmail.com
 
 
